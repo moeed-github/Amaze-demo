@@ -1,4 +1,4 @@
 # Amaze-demo
 Bismillah <br>
-Author- Moeed (Abdul)
+Author- Moeed (Babu)
  
